@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @dee-lgtm
 - 👀 I’m interested in ...everything
-- 🌱 I’m currently learning ... all things interesting .. Ho wto enjoy life!
+- 🌱 I’m currently learning ... all things interesting .. How to enjoy life!
 - 💞️ I’m looking to collaborate on ... anything exciting
 - 📫 How to reach me ... just think of me :)
 - 😄 Pronouns: ...
